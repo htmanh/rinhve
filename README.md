@@ -3,7 +3,7 @@
 Hoạt động với phương châm <strong>CHỮ TÍN CHO CHẤT LƯỢNG</strong> - chúng tôi luôn đặt chất lượng sản phẩm lên hàng đầu, vì thế quý khách hãy luôn yên tâm về chất lượng sản phẩm bán tại RINHVE.COM.
 <ul>
  	<li>Đối với sản phẩm Mỹ Phẩm – Làm Đẹp chúng tôi lấy hàng trực tiếp tại công ty sản xuất khi có đơn hàng của quý khách, quý khách sẽ được hưởng mọi chương trình ưu đãi của công ty sản xuất đưa ra…</li>
- 	<li>Đối với sản phẩm Băng keo công nghiệp (băng keo 3M), Keo công nghiệp (keo dán 3M), các sản phẩm 3M… RINHVE.COM hợp tác với Công ty TNHH Giải Pháp Công Nghệ ANH KHANG (anhkhang.com.vn – bangkeocongnghiep.com.vn) để cung cấp và phân phối. Quý khách sẽ được tư vấn miễn phí bởi chính nhân viên giàu kinh nghiệm của Anh Khang.</li>
+ 	<li>Đối với sản phẩm Băng keo công nghiệp (băng keo 3M), Keo công nghiệp (keo dán 3M), các sản phẩm 3M… RINHVE.COM hợp tác với Công ty TNHH Giải Pháp Công Nghệ ANH KHANG (http://anhkhang.com.vn/ – http://bangkeocongnghiep.com.vn/) để cung cấp và phân phối. Quý khách sẽ được tư vấn miễn phí bởi chính nhân viên giàu kinh nghiệm của Anh Khang.</li>
 </ul>
 
 <strong><a href="https://rinhve.com/san-pham/my-pham-lam-dep/">MỸ PHẨM - LÀM ĐẸP</a></strong>
